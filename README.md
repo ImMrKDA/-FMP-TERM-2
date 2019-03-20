@@ -4,7 +4,7 @@
 **Course:** Web Media Production Level 3  
 **Unit Code:** WEB14303  
 
-##Term 2
+## Term 2
 
 ### Blogs posts
 * [Session 7](https://medium.com/@k.arboleda/set-smart-goals-for-this-term-1613fea6eefa)
