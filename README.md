@@ -17,11 +17,11 @@
 
 ### Formative Presentation 2nd term
 
-[Formative presentation on Google Slides](https://docs.google.com/presentation/d/1-PUgf6bdbwImTXOZQ7FPMefHb53Y7OvqswfDPpUkT_k/edit?usp=sharing)
+[Formative Presentation on Google Slides](https://docs.google.com/presentation/d/1-PUgf6bdbwImTXOZQ7FPMefHb53Y7OvqswfDPpUkT_k/edit?usp=sharing)
 
 ### Research Record Folder
 
-[Research record folder on Google Docs](https://docs.google.com/document/d/1OOifC25MWOE3oNS5cXLH-G5CPLZbXaZs2UWvF1GSZkY/edit?usp=sharing)
+[Research Record Folder on Google Docs](https://docs.google.com/document/d/1OOifC25MWOE3oNS5cXLH-G5CPLZbXaZs2UWvF1GSZkY/edit?usp=sharing)
 
 ### Creative Output Delivery folder
 
